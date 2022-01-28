@@ -1,0 +1,2 @@
+- Hi, I’m @furyannvs
+- I'm interested in learning about everything of universe of T.I
